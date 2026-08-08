@@ -1,3 +1,3 @@
 ### Steuart Brown
 
-Product manager and software engineer. 
+Product and software engineer. 
